@@ -1,4 +1,4 @@
-
+adopt me Scripts stealth is the best adopt me Script, featuring auto-sell and custom skins. Safe and powerful for all your needs.
 
 
 
